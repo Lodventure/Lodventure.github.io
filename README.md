@@ -1,6 +1,7 @@
 ## Welcome to Lordventure Promotion Game
+![capsule_616x353](https://user-images.githubusercontent.com/111450642/185208617-4e187e81-35c7-420b-834b-9962c2c3f608.jpg)
 
- [Dowland](https://drive.google.com/file/d/1gTHu5QNZ48QKeY2Ldl53XbROEJNffw7B/view?usp=sharing) .
+ [Dowland](https://drive.google.com/file/d/1gTHu5QNZ48QKeY2Ldl53XbROEJNffw7B/view?usp=sharing)
 
 ### Game İnformation
 
